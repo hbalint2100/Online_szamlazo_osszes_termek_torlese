@@ -1,1 +1,1 @@
-# Online_sz-ml-z-_-sszes_term-k_t-rl-se
+# Online_szamlazo_osszes_termek_torlese
